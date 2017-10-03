@@ -17,6 +17,6 @@ Located here: http://tiny.cc/ddlcmod
 
 ## Credits 
 
-* Dan Salvato, and the whole crew at the DDLC discord. <3
+* Dan Salvato, and the whole crew at the DDLC discord.
 
-* Bee and Yuri. Daw. Trip. @0x0ade. 
+* Bee and Yuri. Daw. Trip. @0x0ade. Love ya nerds.
